@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on FPGA based project
 - 📫 How to reach me +98 935 544 89 44
 - 😄 Pronouns: He/Him
-- ## ⚡ Fun Fact Section:
+- ## ⚡ Fun Facts:
 
 **Master of My Domain (Literally):** I hold a Master's degree in Electrical Power and Electronics, so you can say I'm wired for success (pun intended)! 
 
