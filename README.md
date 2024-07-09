@@ -2,7 +2,7 @@
 - 👀 I’m interested in Digital Design
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on FPGA based project
-- 📫 How to reach me +98 935 544 89 44
+- 📫 How to reach me +98 996 499 3747
 - 😄 Pronouns: He/Him
 - ## ⚡ Fun Facts:
 
